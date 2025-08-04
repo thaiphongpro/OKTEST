@@ -1,1 +1,1 @@
-![Cat](https://placekitten.com/400/300)
+![OKTest Logo](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiO_QBEUGLx4afKk43Ww6QIYHo0taRpb4kV38mSqqY7N6OPvF0P4nGM46N7T0GGbzpam6MK5d2emu1-TwAdRvcnHHScNiT_JnJ6qGI2bHagIl2fEifqdroHfsi-on2fuFTt4Gpap0bs-FDT7Zj_FhTfYELBxxWQHzdz8CcI9Pr4-GrNgXp4fslmqwbr3BA/s2048/OKTest.png)
